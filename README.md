@@ -1,1 +1,0 @@
-# mar-ohs-wowowow-awards
